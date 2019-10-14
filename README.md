@@ -1,2 +1,2 @@
 # PicBed
-再试一遍x
+KO NO KR 自己的图床哒!
